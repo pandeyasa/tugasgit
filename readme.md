@@ -1,1 +1,1 @@
-repohistory dari pc lokal
+repohistory baru dari pc lokal 
